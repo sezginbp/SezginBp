@@ -8,4 +8,5 @@
 - 🌱 I’m currently learning IOT and Big data...
 
 
--->
+-->-https://twitter.com/SezginBp
+-->https://www.linkedin.com/in/sezgin-büyükpatır-3211171a9/
